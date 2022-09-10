@@ -1,2 +1,2 @@
 # learning
-lets create an extraordinary thing!
+lets create an extraordinary thing--hustle!
